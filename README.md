@@ -8,5 +8,5 @@
 - 👯 I’m looking to collaborate on Videogames companies.
 - 📫 How to reach me: engineerluis05@gmail.com
 - 😄 Pronouns: LB.
-- ⚡ Fun fact: Born to be rich.
+- ⚡ Fun fact: Born to be rich
 -->
